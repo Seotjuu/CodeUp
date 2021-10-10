@@ -1,2 +1,2 @@
-# Seotjuu's CodeUp
+# Seotjuu
 
